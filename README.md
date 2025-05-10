@@ -8,5 +8,4 @@
 
 📫 How to reach me shubham.m.kokane@gmail.com
 
-⚡ Fun fact: I am from another universe trying to get back.
 
